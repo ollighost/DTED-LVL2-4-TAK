@@ -35,3 +35,5 @@ Denmark:                  https://mega.nz/file/SahRVJKK#R_OO3LQn9fJnIABXHYemt2NO
 
 Djibouti:                 https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
 
+Sweden/Norway/Finland:    https://mega.nz/file/2aQzGaCZ#s4z0fhLXmSiaDUwoPISGkfWIQ2AY4G1upsgMAro2QL0
+
