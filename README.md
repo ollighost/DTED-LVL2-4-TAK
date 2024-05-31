@@ -25,7 +25,7 @@ Swiss/Austria:             https://mega.nz/file/fH4xHaSS#qB7PU4Po8ve58MYeRVPY7iA
 
 Sudan:                     https://mega.nz/file/eLYWCRAI#qcvwwdtUj2vmWi3RKHBrq8HA_pIYqiR2W7qxTB5FNQE
 
-Mali/Niger/BurkanoFaso     https://mega.nz/file/ybYCTA4B#CY60w7nDvwXQc9cLCz3FbndxiWzrlkev1nNdwS3GzS8
+Mali/Niger/BurkanoFaso:    https://mega.nz/file/ybYCTA4B#CY60w7nDvwXQc9cLCz3FbndxiWzrlkev1nNdwS3GzS8
 
 Namibia:                  https://mega.nz/file/jDZhlZSK#00HM_A8xLQ_Ngbi0MJVaxseXuHU5P7h1JLbtROZOmiw
 
