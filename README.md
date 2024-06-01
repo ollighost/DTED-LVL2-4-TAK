@@ -50,3 +50,9 @@ Bangladesh:               https://mega.nz/file/iGwgyDyZ#2VBzaDG4Yl4mT4VvaBpYB2rk
 India:                    https://mega.nz/file/nPZlWApJ#NK7Dpfhu4GkR57QFrDXjXOO8ynG1i9EJ2XPmxcEWKUU
 
 Lithuania/Kaliningrad:    https://mega.nz/file/zKIWnBLY#tKTS4op1rE-Bf2WGfHijEFukjEoxh6zsKy7xTna1MFw
+
+Australia:                https://mega.nz/file/LHwwXDba#r8DJW8b_AHvzhRsnW9rOH3Ami2yuRf9vHNd3c-wkkXo
+
+Belgium/NLD/Luxembourg    https://mega.nz/file/DCYzTJxK#l2i8nPGzSkNzurb2y191vz8LKaTTpwsg3RbTMpxXNGk
+
+Taiwan:                   https://mega.nz/file/XSxFmbzb#lI-hrj1hg3pYbRpxpXfwkBDtK-wnEJJn6q-O_KymeYc
