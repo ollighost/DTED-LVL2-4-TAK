@@ -41,3 +41,4 @@ Djibouti:                 https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5N
 
 Sweden/Norway/Finland:    https://mega.nz/file/2aQzGaCZ#s4z0fhLXmSiaDUwoPISGkfWIQ2AY4G1upsgMAro2QL0
 
+Poland:                  https://mega.nz/file/GCY0WDiJ#xSdygH-n9lHoIFGj3lL9XKDm6pdX5Q7ULyFZ7695hrc
