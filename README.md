@@ -62,3 +62,9 @@ Island:                   https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8u
 Madagascar:               https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
 
 Georgia:                  https://mega.nz/file/2W5mCC6T#GEHMkn9zInovDiZhC8iM40uK-CAShS5YBXSyd4RGI0E
+
+Edypt:                    https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
+
+US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmubs0AdK2ffmGfJEVfGKM
+
+Turkey:                   https://mega.nz/file/ne5GXQSR#rpY0OoQv_b5v0d7iptYD3hEgeDQxxsk0-IiBb7a1OyU
