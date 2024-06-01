@@ -6,7 +6,7 @@ Here are the links to my collection of DTED LVL2 data
 
 Download -> Unzip (Winrar/Winzip) -> copy the contents to Phone -> atak -> DTED folder
 
-EU---------------------------------------------------------------------------------------------------
+------------------------------------------------EU---------------------------------------------------
 
 Europe:                    https://mega.nz/file/TaYiDAwB#YEW1FeefVEYeSIM6OtWpAi595DsK4Wqn03V3JLgEvUo
 
@@ -40,7 +40,7 @@ Turkey:                   https://mega.nz/file/ne5GXQSR#rpY0OoQv_b5v0d7iptYD3hEg
 
 Island:                   https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8uGE4oyKDZJ5pOMJKAEvc
 
-AFRIKA----------------------------------------------------------------------------------------------
+--------------------------------------------AFRICA--------------------------------------------------
 
 Tunisia:                   https://mega.nz/file/2OpRBTZJ#OFIwLPCcbf-QVQvQKw5o9K42LLJK8wnHoQnmOsqLz3s
 
@@ -56,13 +56,13 @@ Madagascar:               https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUa
 
 Egypt:                    https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
 
-EAST ASIA-------------------------------------------------------------------------------------------
+-------------------------------------------EAST ASIA------------------------------------------------
 
 Jordan:                    https://mega.nz/file/jDoEkDZY#CJ7koM3XtiLMHeQ2-o0CEmMGn-b3YWXey6Hr1GC3xBU
 
 Lebanon/Jordan/Israel:     https://mega.nz/file/be5xGRAb#J8MGHQbwoCO8oD8ZKOTxn5yGuPqMzVY1vmPEGuaBuVw
 
-ASIA------------------------------------------------------------------------------------------------
+------------------------------------------------ASIA------------------------------------------------
 
 Bangladesh:               https://mega.nz/file/iGwgyDyZ#2VBzaDG4Yl4mT4VvaBpYB2rkgaHYIl6tK5CfifMaU2g
 
@@ -70,7 +70,7 @@ India:                    https://mega.nz/file/nPZlWApJ#NK7Dpfhu4GkR57QFrDXjXOO8
 
 Taiwan:                   https://mega.nz/file/XSxFmbzb#lI-hrj1hg3pYbRpxpXfwkBDtK-wnEJJn6q-O_KymeYc
 
-AMERICA--------------------------------------------------------------------------------------------
+----------------------------------------------AMERICA----------------------------------------------
 
 US Arizona:               https://mega.nz/file/zf4gVIYD#YZ5WtwGJ6eT74XuGxozSK7vtpDHPKYisNxGYCIdLUJI
 
