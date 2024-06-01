@@ -41,4 +41,10 @@ Djibouti:                 https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5N
 
 Sweden/Norway/Finland:    https://mega.nz/file/2aQzGaCZ#s4z0fhLXmSiaDUwoPISGkfWIQ2AY4G1upsgMAro2QL0
 
-Poland:                  https://mega.nz/file/GCY0WDiJ#xSdygH-n9lHoIFGj3lL9XKDm6pdX5Q7ULyFZ7695hrc
+Poland:                   https://mega.nz/file/GCY0WDiJ#xSdygH-n9lHoIFGj3lL9XKDm6pdX5Q7ULyFZ7695hrc
+
+New Zealand:              https://mega.nz/file/DW4gQKBa#fy7jHELiyZvpjyUa8lVAKrMOYHyCogrFaWhdFd49bEw
+
+Bangladesh:               https://mega.nz/file/iGwgyDyZ#2VBzaDG4Yl4mT4VvaBpYB2rkgaHYIl6tK5CfifMaU2g
+
+India:                    https://mega.nz/file/nPZlWApJ#NK7Dpfhu4GkR57QFrDXjXOO8ynG1i9EJ2XPmxcEWKUU
