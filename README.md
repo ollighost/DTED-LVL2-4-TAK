@@ -56,3 +56,9 @@ Australia:                https://mega.nz/file/LHwwXDba#r8DJW8b_AHvzhRsnW9rOH3Am
 Belgium/NLD/Luxembourg    https://mega.nz/file/DCYzTJxK#l2i8nPGzSkNzurb2y191vz8LKaTTpwsg3RbTMpxXNGk
 
 Taiwan:                   https://mega.nz/file/XSxFmbzb#lI-hrj1hg3pYbRpxpXfwkBDtK-wnEJJn6q-O_KymeYc
+
+Island:                   https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8uGE4oyKDZJ5pOMJKAEvc
+
+Madagascar:               https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
+
+Georgia:                  https://mega.nz/file/2W5mCC6T#GEHMkn9zInovDiZhC8iM40uK-CAShS5YBXSyd4RGI0E
