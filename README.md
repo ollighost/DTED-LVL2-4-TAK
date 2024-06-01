@@ -1,3 +1,7 @@
+Please DONATE for my work 
+PayPal: ollighost@protonmail.com
+
+
 Here are the links to my collection of DTED LVL2 data
 
 Download -> Unzip (Winrar/Winzip) -> copy the contents to Phone -> atak -> DTED folder
