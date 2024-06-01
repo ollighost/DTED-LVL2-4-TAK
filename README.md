@@ -68,3 +68,11 @@ Edypt:                    https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxE
 US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmubs0AdK2ffmGfJEVfGKM
 
 Turkey:                   https://mega.nz/file/ne5GXQSR#rpY0OoQv_b5v0d7iptYD3hEgeDQxxsk0-IiBb7a1OyU
+
+Cuba:                     https://mega.nz/file/qaQFxIAB#CGPYH1LxUcH8OhXlriol51USYxwEleFeWR6c6EL4YMs
+
+Mexico:                   https://mega.nz/file/uLBXFRKZ#IN7lkoM68E933stxb7WYzUZG9ZcyYuDNpuSWcayD33A
+
+US Florida:               https://mega.nz/file/aC4DgCxR#l8DN9W-6mJbjYhRdyiNEzU-vPnmgav-12b5wYWGjMnY
+
+US Georgia/South Carolina:  https://mega.nz/file/KTBWUApA#cZWnnOH8jl4YhjjIqOLcPkUCoXjXKDj1sjpEKhAY0X8
