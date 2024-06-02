@@ -70,7 +70,7 @@ India:                    https://mega.nz/file/nPZlWApJ#NK7Dpfhu4GkR57QFrDXjXOO8
 
 Taiwan:                   https://mega.nz/file/XSxFmbzb#lI-hrj1hg3pYbRpxpXfwkBDtK-wnEJJn6q-O_KymeYc
 
-----------------------------------------------AMERICA----------------------------------------------
+--------------------------------------------NORTH AMERICA-------------------------------------------
 
 US Alaska:                https://mega.nz/file/aSAURBwR#uaCzTVamzbRL19dIig8CYwMxzOZQOC2K0SXCwk4KnTk
 
@@ -82,11 +82,29 @@ US Florida:               https://mega.nz/file/aC4DgCxR#l8DN9W-6mJbjYhRdyiNEzU-v
 
 US Georgia/South Carolina:  https://mega.nz/file/KTBWUApA#cZWnnOH8jl4YhjjIqOLcPkUCoXjXKDj1sjpEKhAY0X8
 
-Colombia/Ecuador:         https://mega.nz/file/mXZUzZQb#-57CplpfRBCfz_a_Nfj5KX8QktPb5neQj4vd-WjIdbA
+----------------------------------------MIDDLE AMERICA----------------------------------------------
+
+Jamaica:                  https://mega.nz/file/rGZ0HZyD#N8DCTdXAmcXVmIyAftVZvfM_tNCGgYctHPizVEhOm9Q
+
+Puerto Rico:              https://mega.nz/file/WbpDFIBS#9v_8Bu3rr1SE9V2WiEJfh3Vd_X25xxhxfC9x2Fc_9LE
+
+Costa Rica:               https://mega.nz/file/2KA3BKSQ#4Dvs9Jm_gYCL9fLZ6T1YvnkmGSnJuI3ZyY-DpRiH6EQ
+
+Haiti/Dominican Republic:  https://mega.nz/file/eHx1ibSR#_04YWMQeU2c_JWG3PYsM3U8GMc5gYe59oESEBpwtfFo
+
+Panama:                   https://mega.nz/file/PaYQABxa#Z1xfPN0nvEgX1zXTlF5BvWj-PEFgNbTdHQBdePcq92g
+
+Guatemala/Belize/El Salvador:  https://mega.nz/file/vfI3ABZK#hOdcLhRKb2FYlpttjOiODED9zUR7hvXDnwLrYJYTXf0
+
+Honduras/El Salvador/Nicaragua:  https://mega.nz/file/yHZwmQRR#bPV_3fGGaO5IP9SjKGosgaN1p_37gRwpxY2dTqTmjt8
 
 Cuba:                     https://mega.nz/file/qaQFxIAB#CGPYH1LxUcH8OhXlriol51USYxwEleFeWR6c6EL4YMs
 
 Mexico:                   https://mega.nz/file/uLBXFRKZ#IN7lkoM68E933stxb7WYzUZG9ZcyYuDNpuSWcayD33A
+
+---------------------------------------SOUTH AMERICA-----------------------------------------------
+
+Colombia/Ecuador:         https://mega.nz/file/mXZUzZQb#-57CplpfRBCfz_a_Nfj5KX8QktPb5neQj4vd-WjIdbA
 
 Venezuela:                https://mega.nz/file/yGwnVLBK#KS9PdzeGTv6XnhHf3XP6KIoAxhxrpRFAnuMORbRA2Bk
 
