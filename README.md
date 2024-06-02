@@ -42,6 +42,12 @@ Island:                    https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8
 
 --------------------------------------------AFRICA--------------------------------------------------
 
+Mali:                      https://mega.nz/file/PCIjDY4b#Y9z5pUMqNBdyELnebT4m-d4x1aH5YT8Oe4CQnQE_JtU
+
+Libya:                     https://mega.nz/file/ra5RmRhB#uONJsp7GVkNMdhC9OBdQOYq4cB-RCrdud0Eumej8w74
+
+Tunisia:                   https://mega.nz/file/qP5RWIDT#BpVJ2NFyjzOhWQdGE0JNOPayMkzWqDIwaB1MIKSDDv4
+
 Djibouti:                  https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
 
 Madagascar:                https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
@@ -73,6 +79,8 @@ US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmu
 US Florida:               https://mega.nz/file/aC4DgCxR#l8DN9W-6mJbjYhRdyiNEzU-vPnmgav-12b5wYWGjMnY
 
 US Georgia/South Carolina:  https://mega.nz/file/KTBWUApA#cZWnnOH8jl4YhjjIqOLcPkUCoXjXKDj1sjpEKhAY0X8
+
+US Texas/Oklahoma:        https://mega.nz/file/aXAHUaRY#tH75LsuqykrgqKaEL_WThMINgtmtunzSpzPk6hiXXWg
 
 ----------------------------------------MIDDLE AMERICA----------------------------------------------
 
