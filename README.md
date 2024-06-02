@@ -72,6 +72,8 @@ Taiwan:                   https://mega.nz/file/XSxFmbzb#lI-hrj1hg3pYbRpxpXfwkBDt
 
 ----------------------------------------------AMERICA----------------------------------------------
 
+US Alaska:                https://mega.nz/file/aSAURBwR#uaCzTVamzbRL19dIig8CYwMxzOZQOC2K0SXCwk4KnTk
+
 US Arizona:               https://mega.nz/file/zf4gVIYD#YZ5WtwGJ6eT74XuGxozSK7vtpDHPKYisNxGYCIdLUJI
 
 US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmubs0AdK2ffmGfJEVfGKM
@@ -79,6 +81,8 @@ US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmu
 US Florida:               https://mega.nz/file/aC4DgCxR#l8DN9W-6mJbjYhRdyiNEzU-vPnmgav-12b5wYWGjMnY
 
 US Georgia/South Carolina:  https://mega.nz/file/KTBWUApA#cZWnnOH8jl4YhjjIqOLcPkUCoXjXKDj1sjpEKhAY0X8
+
+Colombia/Ecuador:         https://mega.nz/file/mXZUzZQb#-57CplpfRBCfz_a_Nfj5KX8QktPb5neQj4vd-WjIdbA
 
 Cuba:                     https://mega.nz/file/qaQFxIAB#CGPYH1LxUcH8OhXlriol51USYxwEleFeWR6c6EL4YMs
 
