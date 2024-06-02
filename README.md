@@ -16,29 +16,29 @@ France:                    https://mega.nz/file/HXhRGLaK#KoxdeJm9dwc0KrFBU-0ud2S
 
 Spain/Portugal:            https://mega.nz/file/XSoHyBjT#mPalOnZuEJ3dGxqB_BBuxJWYtXmgtYYDUwQn2JjuE2U
 
-Germany:                   https://mega.nz/file/6TgAES7L#JJrFN9GBK4ps9C6u3uBrPfsfVky4mxohUQCpsuYyr_k
+Germany:                   https://mega.nz/file/3XxjHCxb#pFDvIJfrsPkhX4Um_UdtS1-4EZaialmOetBjURUsuQo
 
 Swiss/Austria:             https://mega.nz/file/fH4xHaSS#qB7PU4Po8ve58MYeRVPY7iAUwUrcziRSP1kVEFHMuX0
 
-England/Ireland:          https://mega.nz/file/WXYRDYKD#E8CcMNM8ci7cQ6HH6SU-tlwzyQQ4sPFs2W5z8PzOQZM
+England/Ireland:           https://mega.nz/file/WXYRDYKD#E8CcMNM8ci7cQ6HH6SU-tlwzyQQ4sPFs2W5z8PzOQZM
 
-Denmark:                  https://mega.nz/file/SahRVJKK#R_OO3LQn9fJnIABXHYemt2NOpf4rnwXjRs06MBmttYQ
+Denmark:                   https://mega.nz/file/SahRVJKK#R_OO3LQn9fJnIABXHYemt2NOpf4rnwXjRs06MBmttYQ
 
-Sweden/Norway/Finland:    https://mega.nz/file/2aQzGaCZ#s4z0fhLXmSiaDUwoPISGkfWIQ2AY4G1upsgMAro2QL0
+Sweden/Norway/Finland:     https://mega.nz/file/2aQzGaCZ#s4z0fhLXmSiaDUwoPISGkfWIQ2AY4G1upsgMAro2QL0
 
-Poland:                   https://mega.nz/file/GCY0WDiJ#xSdygH-n9lHoIFGj3lL9XKDm6pdX5Q7ULyFZ7695hrc
+Poland:                    https://mega.nz/file/GCY0WDiJ#xSdygH-n9lHoIFGj3lL9XKDm6pdX5Q7ULyFZ7695hrc
 
-Lithuania/Kaliningrad:    https://mega.nz/file/zKIWnBLY#tKTS4op1rE-Bf2WGfHijEFukjEoxh6zsKy7xTna1MFw
+Lithuania/Kaliningrad:     https://mega.nz/file/zKIWnBLY#tKTS4op1rE-Bf2WGfHijEFukjEoxh6zsKy7xTna1MFw
 
 Ukraine:                   https://mega.nz/file/2SR2FTxY#3qiB2VPDZ-ILaWnFnEVWiBYqoShhCxzgDNhyA9ftlO4
 
-Belgium/NLD/Luxembourg    https://mega.nz/file/DCYzTJxK#l2i8nPGzSkNzurb2y191vz8LKaTTpwsg3RbTMpxXNGk
+Belgium/NLD/Luxembourg     https://mega.nz/file/DCYzTJxK#l2i8nPGzSkNzurb2y191vz8LKaTTpwsg3RbTMpxXNGk
 
-Georgia:                  https://mega.nz/file/2W5mCC6T#GEHMkn9zInovDiZhC8iM40uK-CAShS5YBXSyd4RGI0E
+Georgia:                   https://mega.nz/file/2W5mCC6T#GEHMkn9zInovDiZhC8iM40uK-CAShS5YBXSyd4RGI0E
 
-Turkey:                   https://mega.nz/file/ne5GXQSR#rpY0OoQv_b5v0d7iptYD3hEgeDQxxsk0-IiBb7a1OyU
+Turkey:                    https://mega.nz/file/ne5GXQSR#rpY0OoQv_b5v0d7iptYD3hEgeDQxxsk0-IiBb7a1OyU
 
-Island:                   https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8uGE4oyKDZJ5pOMJKAEvc
+Island:                    https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8uGE4oyKDZJ5pOMJKAEvc
 
 --------------------------------------------AFRICA--------------------------------------------------
 
@@ -48,13 +48,13 @@ Sudan:                     https://mega.nz/file/eLYWCRAI#qcvwwdtUj2vmWi3RKHBrq8H
 
 Mali/Niger/BurkanoFaso:    https://mega.nz/file/ybYCTA4B#CY60w7nDvwXQc9cLCz3FbndxiWzrlkev1nNdwS3GzS8
 
-Namibia:                  https://mega.nz/file/jDZhlZSK#00HM_A8xLQ_Ngbi0MJVaxseXuHU5P7h1JLbtROZOmiw
+Namibia:                   https://mega.nz/file/jDZhlZSK#00HM_A8xLQ_Ngbi0MJVaxseXuHU5P7h1JLbtROZOmiw
 
-Djibouti:                 https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
+Djibouti:                  https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
 
-Madagascar:               https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
+Madagascar:                https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
 
-Egypt:                    https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
+Egypt:                     https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
 
 -------------------------------------------EAST ASIA------------------------------------------------
 
