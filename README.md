@@ -42,14 +42,6 @@ Island:                    https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8
 
 --------------------------------------------AFRICA--------------------------------------------------
 
-Tunisia:                   https://mega.nz/file/2OpRBTZJ#OFIwLPCcbf-QVQvQKw5o9K42LLJK8wnHoQnmOsqLz3s
-
-Sudan:                     https://mega.nz/file/eLYWCRAI#qcvwwdtUj2vmWi3RKHBrq8HA_pIYqiR2W7qxTB5FNQE
-
-Mali/Niger/BurkanoFaso:    https://mega.nz/file/ybYCTA4B#CY60w7nDvwXQc9cLCz3FbndxiWzrlkev1nNdwS3GzS8
-
-Namibia:                   https://mega.nz/file/jDZhlZSK#00HM_A8xLQ_Ngbi0MJVaxseXuHU5P7h1JLbtROZOmiw
-
 Djibouti:                  https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
 
 Madagascar:                https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
