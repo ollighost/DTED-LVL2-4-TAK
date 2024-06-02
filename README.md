@@ -97,3 +97,7 @@ New Zealand:              https://mega.nz/file/DW4gQKBa#fy7jHELiyZvpjyUa8lVAKrMO
 ---------------------------------------------------------------------------------------------------
 
 Australia:                https://mega.nz/file/LHwwXDba#r8DJW8b_AHvzhRsnW9rOH3Ami2yuRf9vHNd3c-wkkXo
+
+
+Please DONATE for my work 
+PayPal: ollighost@protonmail.com
