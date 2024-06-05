@@ -54,6 +54,8 @@ Madagascar:                https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVU
 
 Egypt:                     https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
 
+Tshad:                    https://mega.nz/file/uPJHnRgC#ddN6dR5hN-A-JRimwxISIHtJtYKVWr_2ZYJZqqCAdXg
+
 -------------------------------------------EAST ASIA------------------------------------------------
 
 Jordan:                    https://mega.nz/file/jDoEkDZY#CJ7koM3XtiLMHeQ2-o0CEmMGn-b3YWXey6Hr1GC3xBU
