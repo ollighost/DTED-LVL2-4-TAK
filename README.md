@@ -108,6 +108,8 @@ Mexico:                   https://mega.nz/file/uLBXFRKZ#IN7lkoM68E933stxb7WYzUZG
 
 ---------------------------------------SOUTH AMERICA-----------------------------------------------
 
+Argentina:                https://mega.nz/file/bPIQTS7b#rjskxkFxOKjKWD2rs1FBbDikbSIEztHn5o7ZGP4ngf8
+
 Colombia/Ecuador:         https://mega.nz/file/mXZUzZQb#-57CplpfRBCfz_a_Nfj5KX8QktPb5neQj4vd-WjIdbA
 
 Venezuela:                https://mega.nz/file/yGwnVLBK#KS9PdzeGTv6XnhHf3XP6KIoAxhxrpRFAnuMORbRA2Bk
