@@ -86,6 +86,8 @@ US Georgia/South Carolina:  https://mega.nz/file/KTBWUApA#cZWnnOH8jl4YhjjIqOLcPk
 
 US Texas/Oklahoma:        https://mega.nz/file/aXAHUaRY#tH75LsuqykrgqKaEL_WThMINgtmtunzSpzPk6hiXXWg
 
+CAN Québec:               https://mega.nz/file/eXo31bCC#-kDYCwrfIOGC4VnuTiLiLuz5HSyQM8J7e96qsu31jFA
+
 ----------------------------------------MIDDLE AMERICA----------------------------------------------
 
 Jamaica:                  https://mega.nz/file/rGZ0HZyD#N8DCTdXAmcXVmIyAftVZvfM_tNCGgYctHPizVEhOm9Q
