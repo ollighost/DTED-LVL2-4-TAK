@@ -40,6 +40,8 @@ Turkey:                    https://mega.nz/file/ne5GXQSR#rpY0OoQv_b5v0d7iptYD3hE
 
 Island:                    https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8uGE4oyKDZJ5pOMJKAEvc
 
+Czechia:                   https://mega.nz/file/yLwyRSZJ#B4hVJs413kIAppbkbZnlhr1l9fJTTY_DfZHZuY0BAXg
+
 --------------------------------------------AFRICA--------------------------------------------------
 
 Mali:                      https://mega.nz/file/PCIjDY4b#Y9z5pUMqNBdyELnebT4m-d4x1aH5YT8Oe4CQnQE_JtU
