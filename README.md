@@ -78,6 +78,8 @@ US Alaska:                https://mega.nz/file/aSAURBwR#uaCzTVamzbRL19dIig8CYwMx
 
 US Arizona:               https://mega.nz/file/zf4gVIYD#YZ5WtwGJ6eT74XuGxozSK7vtpDHPKYisNxGYCIdLUJI
 
+US Colorado:              https://mega.nz/file/PChBmIyJ#x5p6y9WbH9YRDBDca-9jRsj39_glcCmhxAsYY7biHCI
+
 US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmubs0AdK2ffmGfJEVfGKM
 
 US Florida:               https://mega.nz/file/aC4DgCxR#l8DN9W-6mJbjYhRdyiNEzU-vPnmgav-12b5wYWGjMnY
