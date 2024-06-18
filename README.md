@@ -90,6 +90,8 @@ US Texas/Oklahoma:        https://mega.nz/file/aXAHUaRY#tH75LsuqykrgqKaEL_WThMIN
 
 CAN Québec:               https://mega.nz/file/eXo31bCC#-kDYCwrfIOGC4VnuTiLiLuz5HSyQM8J7e96qsu31jFA
 
+CAN British Columbia:    https://mega.nz/file/6agRDBLY#nygvcJPtJLw6YRCigfJdwFDZLg5kyY_YBZwRMtTg2Go
+
 CAN New Brunswick:       https://mega.nz/file/6W40UR5A#Kocxzc_JBjEZJ_l5cn7MbjOuXEmp_BadLL6WuOLPqMo
 
 CAN Newfoundland Labrador:  https://mega.nz/file/vbB0QaYC#yv4iWyNCVmtIV0aNOSthOC_jX8wH4jj2O3xNUF01Mgo
