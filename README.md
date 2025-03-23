@@ -10,7 +10,11 @@ Download -> Unzip (Winrar/Winzip) -> copy the contents to Phone -> atak -> DTED 
 
 Europe:                    https://mega.nz/file/TaYiDAwB#YEW1FeefVEYeSIM6OtWpAi595DsK4Wqn03V3JLgEvUo
 
+Belarus:                   https://mega.nz/file/vCQxxDja#3xbcbaHuQFkw4rC2rt3xpQ5bqUGjzdREYTYXBi3WaPc
+
 Lithuania/Latvia/Estonia:  https://mega.nz/file/uSoiBQ6J#gLp9JCObHt5s78u-kmr5EaFSftC4HRP-gUADZ-yik4Y
+
+Finland                    https://mega.nz/file/baQnTbqC#GjqpbOiEK452vp_-eWfqs8OnhoDJ3INvBrJj6TvCvU8
 
 France:                    https://mega.nz/file/HXhRGLaK#KoxdeJm9dwc0KrFBU-0ud2S1NCUhR1TfLBVJiexXJWs
 
@@ -44,17 +48,25 @@ Czechia:                   https://mega.nz/file/yLwyRSZJ#B4hVJs413kIAppbkbZnlhr1
 
 --------------------------------------------AFRICA--------------------------------------------------
 
-Mali:                      https://mega.nz/file/PCIjDY4b#Y9z5pUMqNBdyELnebT4m-d4x1aH5YT8Oe4CQnQE_JtU
-
-Libya:                     https://mega.nz/file/ra5RmRhB#uONJsp7GVkNMdhC9OBdQOYq4cB-RCrdud0Eumej8w74
-
-Tunisia:                   https://mega.nz/file/qP5RWIDT#BpVJ2NFyjzOhWQdGE0JNOPayMkzWqDIwaB1MIKSDDv4
+Congo:                    https://mega.nz/file/eDwSCQDa#RtDM3FNS7bEDJGVbbmELDAk3LHNgJHV8N8j0-kSI6OI
 
 Djibouti:                  https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
 
+Egypt:                     https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
+
+Kenia:                    https://mega.nz/file/2Ghh2Ywb#93PRFMZh069NTR9QHpPF-xKT7-fnqBjLWHZgVM8tJIw
+
+Libya:                     https://mega.nz/file/ra5RmRhB#uONJsp7GVkNMdhC9OBdQOYq4cB-RCrdud0Eumej8w74
+
+Mali:                      https://mega.nz/file/PCIjDY4b#Y9z5pUMqNBdyELnebT4m-d4x1aH5YT8Oe4CQnQE_JtU
+
 Madagascar:                https://mega.nz/file/rOxwBarb#OXX8A0IqJKF9D_bgbOP4wVUabpeBIe4rHHK5d32Ejtg
 
-Egypt:                     https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
+Tanazaia:                  https://mega.nz/file/7bhGXYrY#8XeEDT63j08klnnu6CC9R-F2XUszJXZ37wBkbkwTpEc
+
+Togo/Benin:                https://mega.nz/file/ePRzDRTD#fqr3iZDyT3Eb26WHrjHPNiR-D7ZhLDzgFxgk_6lQiR4
+
+Tunisia:                   https://mega.nz/file/qP5RWIDT#BpVJ2NFyjzOhWQdGE0JNOPayMkzWqDIwaB1MIKSDDv4
 
 Tchad:                    https://mega.nz/file/uPJHnRgC#ddN6dR5hN-A-JRimwxISIHtJtYKVWr_2ZYJZqqCAdXg
 
