@@ -80,23 +80,23 @@ US Arizona:               https://mega.nz/file/zf4gVIYD#YZ5WtwGJ6eT74XuGxozSK7vt
 
 US Colorado:              https://mega.nz/file/PChBmIyJ#x5p6y9WbH9YRDBDca-9jRsj39_glcCmhxAsYY7biHCI
 
-US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmubs0AdK2ffmGfJEVfGKM
+US California:          https://mega.nz/file/zTRDwRIL#Ug6b_FKCbA0stiH_D3aaGwcOe-j-Haii5b8vu2k3YUY
 
 US Florida:               https://mega.nz/file/aC4DgCxR#l8DN9W-6mJbjYhRdyiNEzU-vPnmgav-12b5wYWGjMnY
 
 US Georgia/South Carolina:  https://mega.nz/file/KTBWUApA#cZWnnOH8jl4YhjjIqOLcPkUCoXjXKDj1sjpEKhAY0X8
 
+US Hawaii:                https://mega.nz/file/jWgmyIpJ#VSAf5YrPGuaspmsMhuVSuqmubs0AdK2ffmGfJEVfGKM
+
 US Texas/Oklahoma:        https://mega.nz/file/aXAHUaRY#tH75LsuqykrgqKaEL_WThMINgtmtunzSpzPk6hiXXWg
-
-US California:          https://mega.nz/file/zTRDwRIL#Ug6b_FKCbA0stiH_D3aaGwcOe-j-Haii5b8vu2k3YUY
-
-CAN Québec:               https://mega.nz/file/eXo31bCC#-kDYCwrfIOGC4VnuTiLiLuz5HSyQM8J7e96qsu31jFA
 
 CAN British Columbia:    https://mega.nz/file/6agRDBLY#nygvcJPtJLw6YRCigfJdwFDZLg5kyY_YBZwRMtTg2Go
 
 CAN New Brunswick:       https://mega.nz/file/6W40UR5A#Kocxzc_JBjEZJ_l5cn7MbjOuXEmp_BadLL6WuOLPqMo
 
 CAN Newfoundland Labrador:  https://mega.nz/file/vbB0QaYC#yv4iWyNCVmtIV0aNOSthOC_jX8wH4jj2O3xNUF01Mgo
+
+CAN Québec:               https://mega.nz/file/eXo31bCC#-kDYCwrfIOGC4VnuTiLiLuz5HSyQM8J7e96qsu31jFA
 
 CAN Prince Ed.Isl./NovaScotia: https://mega.nz/file/2foxiSRb#eO_kMTtbO_NDFDoh_V5PX7BrlQuc2kIUMBKZfm-WYlE
 
