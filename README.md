@@ -48,11 +48,11 @@ Czechia:                   https://mega.nz/file/yLwyRSZJ#B4hVJs413kIAppbkbZnlhr1
 
 --------------------------------------------AFRICA--------------------------------------------------
 
-Congo:                    https://mega.nz/file/eDwSCQDa#RtDM3FNS7bEDJGVbbmELDAk3LHNgJHV8N8j0-kSI6OI
-
 Djibouti:                  https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
 
 Egypt:                     https://mega.nz/file/zKpjTBTA#ZfPngIoCrc9EEWZ3gNlxvWxEmwMw8TF9jKFY5Cw9pgI
+
+Ghana:                     https://mega.nz/file/6LZWGI5L#RtDM3FNS7bEDJGVbbmELDAk3LHNgJHV8N8j0-kSI6OI
 
 Kenia:                    https://mega.nz/file/2Ghh2Ywb#93PRFMZh069NTR9QHpPF-xKT7-fnqBjLWHZgVM8tJIw
 
