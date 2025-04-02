@@ -76,6 +76,8 @@ Jordan:                    https://mega.nz/file/jDoEkDZY#CJ7koM3XtiLMHeQ2-o0CEmM
 
 Lebanon/Jordan/Israel:     https://mega.nz/file/be5xGRAb#J8MGHQbwoCO8oD8ZKOTxn5yGuPqMzVY1vmPEGuaBuVw
 
+Syria:                    https://mega.nz/file/6Sx1BLTB#dF3bQp4qhPbW_qFJhYf576TimwDK8prgJfQY-FGjsLw
+
 ------------------------------------------------ASIA------------------------------------------------
 
 Bangladesh:               https://mega.nz/file/iGwgyDyZ#2VBzaDG4Yl4mT4VvaBpYB2rkgaHYIl6tK5CfifMaU2g
