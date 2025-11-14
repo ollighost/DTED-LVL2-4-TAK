@@ -70,6 +70,8 @@ Tunisia:                   https://mega.nz/file/qP5RWIDT#BpVJ2NFyjzOhWQdGE0JNOPa
 
 Tchad:                    https://mega.nz/file/uPJHnRgC#ddN6dR5hN-A-JRimwxISIHtJtYKVWr_2ZYJZqqCAdXg
 
+Nigeria:                  https://mega.nz/file/TGBGlS4I#FPHW9owUNquJnUR2C4e7uoFcuBJBsRQoWdH553m-R1o
+
 -------------------------------------------EAST ASIA------------------------------------------------
 
 Jordan:                    https://mega.nz/file/jDoEkDZY#CJ7koM3XtiLMHeQ2-o0CEmMGn-b3YWXey6Hr1GC3xBU
