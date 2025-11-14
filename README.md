@@ -72,6 +72,8 @@ Tchad:                    https://mega.nz/file/uPJHnRgC#ddN6dR5hN-A-JRimwxISIHtJ
 
 Nigeria:                  https://mega.nz/file/TGBGlS4I#FPHW9owUNquJnUR2C4e7uoFcuBJBsRQoWdH553m-R1o
 
+Niger:                    https://mega.nz/file/GGJSkLJb#cfBmcczipvfBQaUKRHLoMH0ewLGKShsPZa0WgDmyoWo
+
 -------------------------------------------EAST ASIA------------------------------------------------
 
 Jordan:                    https://mega.nz/file/jDoEkDZY#CJ7koM3XtiLMHeQ2-o0CEmMGn-b3YWXey6Hr1GC3xBU
