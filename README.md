@@ -46,6 +46,8 @@ Island:                    https://mega.nz/file/POg0XR4J#VkE5zHoabTm3jwPhpf0hFI8
 
 Czechia:                   https://mega.nz/file/yLwyRSZJ#B4hVJs413kIAppbkbZnlhr1l9fJTTY_DfZHZuY0BAXg
 
+Cyprus:                    https://mega.nz/file/zO4XAZAZ#HzfUGAsBZbfRGJsoK7hYjWdqCxk-Oh6BDuYY6pGCloE
+
 --------------------------------------------AFRICA--------------------------------------------------
 
 Djibouti:                  https://mega.nz/file/3KQFmSyC#5Yn5-0ZaZyGXm87gdaUEtt5NHYrYU6xA7xgqNis8IE0
